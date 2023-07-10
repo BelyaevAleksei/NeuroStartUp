@@ -1,4 +1,4 @@
 # Беляев Алексей 
 
 # Ссылка на резюме:
-![](https://https://drive.google.com/drive/my-drive)
+![](https://drive.google.com/file/d/142emnipAmpGdQKFWF-FYRGZuLD22877c/view?usp=sharing)https://drive.google.com/file/d/142emnipAmpGdQKFWF-FYRGZuLD22877c/view?usp=sharing)
